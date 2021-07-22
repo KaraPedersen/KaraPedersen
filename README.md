@@ -1,4 +1,4 @@
-![Karap](https://user-images.githubusercontent.com/79377591/126583338-1cade786-80bb-4274-b9a1-07f0d2968f1b.jpeg)
+![karaped](https://user-images.githubusercontent.com/79377591/126588374-c7e018a8-9362-4ee7-8397-cd29d1c4da10.jpeg)
 <div align= "center" height="100%" width="100%">
 <h2> About me: </h2>
         <h4>I love dogs, cats and all creatures big and small.</h4>
